@@ -18,7 +18,7 @@
 [![GitHub](https://img.shields.io/badge/-GitHub-181717?style=flat&logo=github&link=https://github.com/hritik5102)](https://github.com/zVictorRPD)
 
 ### ☕ Get In Touch
-- [Twitter](https://twitter.com/nicecollors)
+- [Twitter](https://twitter.com/zvictor__rpd)
 - [Personal Site](https://google.com)
 
 ### ☕ Wooking for
